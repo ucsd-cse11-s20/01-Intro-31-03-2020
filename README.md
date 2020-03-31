@@ -1,3 +1,5 @@
+Zoom link: https://ucsd.zoom.us/s/797074102
+
 All videos available here:
 
 https://drive.google.com/drive/u/1/folders/1uh1Ucip68XCbERUJjLx-HvDk6vvfEevX
